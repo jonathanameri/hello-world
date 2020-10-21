@@ -1,2 +1,5 @@
 # hello-world
 I have no idea what I'm doing :)
+WHY THE FUCK IS A WEBSITE LIKE THIS SO CONFUSING!????? IT SHOULD BE STRAIGHTFORWARD!!!!! THATS WHAT I THOUGHT IT WOULD BE!
+
+>:(
